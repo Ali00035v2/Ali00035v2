@@ -8,7 +8,9 @@ I use LiquidBounce btw
 --->
 
 Yes, you are allowed to skid from my scripts and configs
+
 No, I do not use Reddit anymore
+
 No, I do not play Minecraft anymore
 
 Simply don't ask me hacked client questions as:
