@@ -4,15 +4,15 @@
 
 #### Q: Can I skid from your shit?
 
-Yes, you are allowed to skid from my scripts and configs,
+Yes, you are allowed to skid from my scripts and configs.
 
 #### Q: Do you still use Reddit?
 
-No, I do not use Reddit anymore,
+No, I do not use Reddit anymore.
 
 #### Q: Do you still play Minecraft? 
 
-No, I do not play Minecraft anymore
+No, I do not play Minecraft anymore.
 
 
 Also don't ask me any hacked client questions as:
