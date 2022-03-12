@@ -1,8 +1,5 @@
 ## My profile
-🤨 Hello
-I am some random guy who stars, forks stuff (mostly Minecraft-related)
 
-I use LiquidBounce btw
 
 
 Yes, you are allowed to skid from my scripts and configs,
