@@ -1,11 +1,15 @@
 ## My profile
 
+FAQ: 
 
+Q: Can I skid from your shit
 
 Yes, you are allowed to skid from my scripts and configs,
 
+Q: Do you use Reddit
 No, I do not use Reddit anymore,
 
+Q: Do you still play Minecrafr
 No, I do not play Minecraft anymore
 
 
