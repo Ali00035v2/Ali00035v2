@@ -4,7 +4,7 @@
 
 #### Q: Can I skid from your shit?
 
-Yes, you are allowed to skid from my scripts and configs.
+Yes, you are allowed to skid from my scripts and configs as long as you credit to me.
 
 #### Q: Do you still use Reddit?
 
