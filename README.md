@@ -9,6 +9,6 @@ Welcome to my profile, I use my GitHub account mostly for Minecraft cheating stu
 - I got not that much to do at the moment.
 - [In-case you came for my LiquidBounce script collection, click here.](https://github.com/Ali00035sStuff/LiquidBounce-Scripts)
 
-If you're a stalker, fuck off my profile.
+If you're a stalker, fuck off my profile, you piece of shit.
 
 ![hello](https://github-readme-stats.vercel.app/api?username=Ali00035v2&show_icons=true&theme=onedark&count_private=true)
