@@ -1,3 +1,1 @@
-# Goodbye.
-
-I'm leaving this community.
+# Inactive in the cheating community.
