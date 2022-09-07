@@ -1,8 +1,6 @@
 ## Ali's profile
 ![](https://komarev.com/ghpvc/?username=Ali00035v2)
 
-![](https://c.tenor.com/dBDXgGHFWv4AAAAd/suicide-mouse-mickey.gif)
-
 ![](https://discord.c99.nl/widget/theme-1/1011957656644222986.png)
 
 Welcome to my profile, I use my GitHub account mostly for Minecraft cheating stuff. You probably already know me.
